@@ -1,4 +1,5 @@
 ![image](https://github.com/user-attachments/assets/48453ad3-5c93-4dea-b50b-85296d9a83c0)
+
 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 - im on alot during school hours ;
 my strawpage is outdated, i need to fix it lawl..
 check out my links! ✶⋆.˚꩜ .ᐟ˙⋆✶
